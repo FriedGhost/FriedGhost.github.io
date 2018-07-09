@@ -1,0 +1,1 @@
+# FriedGhost.github.io
